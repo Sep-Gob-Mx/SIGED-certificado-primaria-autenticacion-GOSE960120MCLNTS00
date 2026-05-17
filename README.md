@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-GOSE960120MCLNTS00
+GOSE960120MCLNTS00
